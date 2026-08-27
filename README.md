@@ -40,6 +40,7 @@ Ainda não tenho grandes projetos para mostrar, mas espero poder olhar para este
 📫 Contato
 📧 E-mail: pinikaue@email.com
 💼 LinkedIn: (https://www.linkedin.com/in/kauepini/)
+Dev.to: https://dev.to/kaue_pini
 ⭐ Obrigado por visitar meu perfil!
 
 Um passo de cada vez. 👨‍💻
